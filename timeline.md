@@ -66,13 +66,26 @@ https://www.facebook.com/umeboshi3/posts/873640309418409
 
 Link to list of surplus items.
 
+https://www.facebook.com/umeboshi3/posts/873690352746738
+
+Called HPD at 1249 hrs concerning disposal of surplus property.  Told 
+that somebody will call me back.
+
+https://www.facebook.com/photo.php?fbid=873746406074466&set=a.113429005439547.17620.100003173443255&type=3
+
+Took picture of property describing purses and wallets being claimed as 
+surplus property.
 
 
-- Hattiesburg American Newspaper Report
+## January 7, 2016  - Raise Money For Appeal
 
-## Raise Money For Appeal
+https://www.facebook.com/umeboshi3/posts/874312192684554
+
+Try to raise money for cost of appeal.
+
 
 Retrieved audio of jan 4, 5 meetings.
+
 
 ## January 15, 2016 - File Notice of Appeal
 
@@ -90,6 +103,21 @@ Occasionally glance at website to confirm zero items listed.
 
 Print copy of auctioneer's website describing property as seized.
 
+https://www.facebook.com/umeboshi3/posts/891874837594956
+
+Been away from facebook.  Report filing notice of appeal and 
+writing letter to chief.  Cut and paste letter written to chief.
+
+https://www.facebook.com/umeboshi3/posts/891875844261522
+
+Report that Bill of Exceptions has been compiled and presented 
+to the clerk of council.
+
+https://www.facebook.com/umeboshi3/posts/891904347592005
+
+Post link to Honesty in Purchasing Firearms Act.
+
+
 ## February~
 
 Obtain evidence concerning nature of property of firearms.
@@ -103,7 +131,20 @@ found, instead of seized.
 
 ## February 25, 2016
 
+https://www.facebook.com/umeboshi3/posts/901753223273784
+
+Discuss phone call to auctioneers.  Talk about being 
+unable to locate the signed agreement between the city and 
+the auctioneers.
+
 Call from auctioneer.
+
+
+## February 26, 2016
+
+https://www.facebook.com/umeboshi3/posts/902366383212468
+
+Pick a gun and demonstrate recovered property.
 
 ## February 29, 2016
 
