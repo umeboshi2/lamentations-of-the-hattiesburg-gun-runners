@@ -105,7 +105,7 @@ Print copy of auctioneer's website describing property as seized.
 
 https://www.facebook.com/umeboshi3/posts/891874837594956
 
-Been away from facebook.  Report filing notice of appeal and 
+/Been away from facebook.  Report filing notice of appeal and 
 writing letter to chief.  Cut and paste letter written to chief.
 
 https://www.facebook.com/umeboshi3/posts/891875844261522
@@ -116,6 +116,10 @@ to the clerk of council.
 https://www.facebook.com/umeboshi3/posts/891904347592005
 
 Post link to Honesty in Purchasing Firearms Act.
+
+## February 16, 2016
+
+Talk about Honesty in Purchasing Firearms Act in Citizens Forum.
 
 
 ## February~
@@ -339,3 +343,22 @@ https://www.facebook.com/umeboshi3/posts/909576152491491
 I Will Dare....
 
 
+## March 11, 2016
+
+https://www.facebook.com/photo.php?fbid=910450055737434&set=a.113429005439547.17620.100003173443255&type=3
+
+Here is where I noticed that the words had changed on the notice, 
+even though that happened on March 4.  This is when I noticed that 
+more notices were posted, and I removed the ones at city hall.
+
+https://www.facebook.com/umeboshi3/posts/910525272396579
+
+Link to February 16 Citizens Forum where I have given notice the 
+felony behavior with the Council.
+
+
+## March 12, 2016
+
+https://www.facebook.com/umeboshi3/posts/911074465674993
+
+Repost letter to chief.
