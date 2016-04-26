@@ -129,6 +129,9 @@ Notice that items are listed on website.
 Calls to and from auctioneers.  Discuss property being 
 found, instead of seized.
 
+Take pictures of Martin & Martin folder contents at city hall.
+
+
 ## February 25, 2016
 
 https://www.facebook.com/umeboshi3/posts/901753223273784
@@ -148,14 +151,191 @@ Pick a gun and demonstrate recovered property.
 
 ## February 29, 2016
 
-Call from admin
+Call from Billy Lane around 10 am.
+
+
+
+## March 1, 2016
+
+https://www.facebook.com/umeboshi3/posts/904925289623244
+
+Make a post linking to general statute for disposal of surplus property 
+and discuss issue further.
+
+https://www.facebook.com/umeboshi3/posts/904939382955168
+
+Share link to WDAM Business Break where Jeff Martin plainly states that
+"public means everybody is invited."
+
+## March 2, 2016
+
+https://www.facebook.com/umeboshi3/posts/905442516238188
+
+Share post on upcoming auction.
 
 
 ## March 4, 2016
 
+
+https://www.facebook.com/umeboshi3/posts/906607982788308
+
+Started notes on Jan 4 meeting.
+
+https://www.facebook.com/photo.php?fbid=906634966118943&set=a.113429005439547.17620.100003173443255&type=3
+
+First noticed the Notice of Auction posted at city hall.  The notice 
+describes a "public auction."
+
+
+
 Call auctioneer at 
 
-
 Call Proulx
+
+
+
+## March 5, 2016
+
+https://www.facebook.com/umeboshi3/posts/907164816065958
+
+Link to minutes of work session and describe why it's important 
+to attend meetings.  Announce attempt to write minutes from 
+audio recording of work session.
+
+
+## March 6, 2016
+
+https://www.facebook.com/umeboshi3/posts/907638209351952
+
+Share picture of Notice of Auction again.
+
+https://www.facebook.com/umeboshi3/posts/907643276018112
+
+Continue writing minutes to work session.
+
+https://www.facebook.com/umeboshi3/posts/907655839350189
+
+Share auctioneer's post again and discuss things that 
+happened in the work session.
+
+https://www.facebook.com/umeboshi3/posts/907689912680115
+
+More discussion.  Talk about noticing posted notice of auction.  
+Talk about getting appointment to inspect firearms.
+
+https://www.facebook.com/umeboshi3/posts/907696236012816
+
+Naming this! -  "Lamentations of the Hattiesburg Outlaw Gun Runners"
+
+https://www.facebook.com/umeboshi3/posts/907816086000831
+
+More discussion concerning attempt to inspect firearms.
+
+https://www.facebook.com/umeboshi3/posts/907840629331710
+
+Talk about contract with auctioneer.
+
+## March 7, 2016
+
+https://www.facebook.com/umeboshi3/posts/908137615968678
+
+Discuss identifying conspiracy to sell firearms dishonestly.
+
+https://www.facebook.com/umeboshi3/posts/908145209301252
+
+Talk about going to police station to show Lt. Proulx the correct way to 
+write the notice of auction.
+
+https://www.facebook.com/umeboshi3/posts/908192762629830
+
+Share WDAM article claiming auction date is set.
+
+https://www.facebook.com/umeboshi3/posts/908194849296288
+
+Share post again concentrating on quote by Kim Bradley.
+
+https://www.facebook.com/umeboshi3/posts/908236795958760
+
+Lt. McLemore calls on phone to talk about Lt. Proulx.
+
+https://www.facebook.com/photo.php?fbid=908241135958326&set=a.113429005439547.17620.100003173443255&type=3
+
+Proulx's email mentioned in contract never approved by council.
+
+
+https://www.facebook.com/photo.php?fbid=908242172624889&set=a.113429005439547.17620.100003173443255&type=3
+
+Lt. Proulx's initials on unlawful notice where he failed to follow the council resolution. (This picture was in phone, the notice had already been changed 
+on the 4th of March.)
+
+
+
+https://www.facebook.com/umeboshi3/posts/908314515950988
+
+Transcribe comments to council concerning Lt. Proulx and Jeff Martin.
+
+https://www.facebook.com/umeboshi3/posts/908343529281420
+
+Link to youtube recording of speech.
+
+https://www.facebook.com/umeboshi3/posts/908452669270506
+
+After midnight, share post of community meeting at Javawerks.
+
+
+
+## March 8, 2016
+
+https://www.facebook.com/umeboshi3/posts/908598615922578
+
+Ready for meeting.
+
+
+https://www.facebook.com/umeboshi3/posts/908699592579147
+
+Talk about Chief Bolton after talking with new Chief of Police.
+
+
+## March 9, 2016
+
+https://www.facebook.com/umeboshi3/posts/909107899204983
+
+Talk more about posted notices at chancery.
+
+
+
+https://www.facebook.com/photo.php?fbid=909262329189540&set=a.113429005439547.17620.100003173443255&type=3
+
+Announce pulling notices from chancery building.
+
+https://www.facebook.com/umeboshi3/posts/909285882520518
+
+Talk about giving Lt. Proulx another chance.
+
+https://www.facebook.com/umeboshi3/posts/909339359181837
+
+Baiting the police....
+
+https://www.facebook.com/photo.php?fbid=909363709179402&set=a.113429005439547.17620.100003173443255&type=3
+
+Text message to police confirming removal of notices.
+
+https://www.facebook.com/umeboshi3/posts/909418112507295
+
+Is it larceny?
+
+https://www.facebook.com/umeboshi3/posts/909418582507248
+
+Or is it malicious mischief?
+
+https://www.facebook.com/umeboshi3/posts/909467372502369
+
+More official announcement that notices have been removed.
+
+## March 10, 2016
+
+https://www.facebook.com/umeboshi3/posts/909576152491491
+
+I Will Dare....
 
 
