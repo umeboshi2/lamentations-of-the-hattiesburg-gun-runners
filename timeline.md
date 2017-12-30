@@ -2,9 +2,17 @@
 
 ## January 4, 2016 - Work Session
 
+This is the beginning.  I attended the agenda review and work session.  
+I was listening to the proposal given concerning the disposal of firearms 
+from the evidence room.  I decided that it would be a good idea to comment 
+on this proposal in next citizens forum.  The proposal was already off the 
+wall, and there was also Mr. Carroll demanding that it be written that the 
+proceeds from the auction be directed to the fines and forfeitures fund.
+
 ## January 5, 2016 - Council Meeting
 
 https://www.facebook.com/umeboshi3/posts/873119806137126
+
 https://www.facebook.com/umeboshi3/posts/873148432800930
 
 Share WDAM report concerning proposal to auction firearms.
